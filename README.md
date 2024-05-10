@@ -20,7 +20,6 @@ Hi, I am Amy. You might recognize me as GitHub's fast learner.
 
 ---
 > The most beautiful thing you can be is yourself.
-- Barbie
 
 
 
